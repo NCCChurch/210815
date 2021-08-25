@@ -39,3 +39,4 @@
 ![直面现实的生命历程_33](https://user-images.githubusercontent.com/86972384/130733878-3f9bd744-4101-4d5d-b5bc-93ae6d809e66.jpg)
 ![直面现实的生命历程_34](https://user-images.githubusercontent.com/86972384/130733883-419d750a-5d18-4b6d-99f9-ec192b1e0ece.jpg)
 
+## [主日证道汇总](https://nccchurch.github.io/Sermons/)
